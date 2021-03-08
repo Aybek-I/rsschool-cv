@@ -1,2 +1,2 @@
-https://aybek-i.github.io/rsschool-cv/index
+https://aybek-i.github.io/rsschool-cv/
 
